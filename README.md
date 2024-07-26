@@ -1,6 +1,6 @@
 ```
 
-         Made with human intelligence <3
+       Created with human intelligence <3
                   @--{======>
 
     __________________________________________
